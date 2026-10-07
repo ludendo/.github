@@ -16,6 +16,7 @@
 
 - 블로그: [blog.naver.com/ludendo](https://blog.naver.com/ludendo)
 - 유튜브: [@ludendo7](https://www.youtube.com/@ludendo7)
+- 인스타그램: [@ludendo7](https://www.instagram.com/ludendo7/)
 
 ---
 
